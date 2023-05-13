@@ -1,3 +1,8 @@
-## I'm Dajun Luo (beenoe). Welcome to my Github page!
+## Hi, my name is Dajun (beenoe). Welcome to my Github page!
 
-- I try to combine artificial intelligence with mechine design and things I love. 
+Enthusiastic about <strong>artificial intelligence🤖</strong> and <strong>machine design⚙️ powered by AI</strong>. 
+<br>
+Trying to make things I love clear and connected. 
+<br>
+Hope to participate in related research in my postgraduate career. 🐋
+
