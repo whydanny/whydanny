@@ -1,4 +1,4 @@
-## Hi, my name is Dajun (beenoe). Welcome to my Github page!
+## Hi, my name is Dajun (whydanny). Welcome to my Github page!
 
 Enthusiastic about <strong>artificial intelligence🤖</strong> and <strong>machine design⚙️ powered by AI</strong>. 
 <br>
