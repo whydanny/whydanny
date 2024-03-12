@@ -2,5 +2,5 @@
 
 Enthusiastic about <strong>artificial intelligence🤖</strong> and <strong>machine design⚙️ powered by AI</strong>. 
 <br>
-Living with ADHD & ASD. Trying to make things I love clear and connected. 🐋
+Neuroatypical. Trying to make things I love clear and connected. 🐋
 
